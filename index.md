@@ -11,6 +11,6 @@ GitHub [@Kamacite-CN](github.com/Kamacite-CN)
 
 ### 成员
 - [Qizhen-Yang](qizhen-yang.cn)
-- [Shanru-Wang](github.com/Shanru-Wang)
+- [Emma Woods' Husband](kamacite.cn)
 
 &copy; 2020~2021 Kamacite CN
